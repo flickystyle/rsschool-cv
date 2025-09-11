@@ -1,1 +1,1 @@
-https://flickystyle.github.io/rsschool-cv/cv
+https://flickystyle.github.io/rsschool-cv/
