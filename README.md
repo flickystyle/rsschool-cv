@@ -1,1 +1,1 @@
-# rsschool-cv
+https://flickystyle.github.io/rsschool-cv/
